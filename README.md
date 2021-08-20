@@ -4,6 +4,8 @@
 - 💞️ I’m looking to collaborate on doing projects together
 - 📫 How to reach me email: yfeng219@gmail.com
 
+- 👾 Thinking of building projects together?
+- CONTACT ME!!!!
 <!---
 solariossss/solariossss is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
